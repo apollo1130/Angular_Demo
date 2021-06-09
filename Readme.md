@@ -1,9 +1,7 @@
-Sorry. My network setting is so suspicious.
-Please invite me on your side.
-https://join.slack.com/t/gbestbill/shared_invite/zt-ri2a6iwz-iIUoTqbsxkDF884lrgsyzg
 
+Hi. Benjamin
+Do you use Skype?. If you use Skype please add me in your contact.
 
-or using My Email.
-
+live:.cid.4f13e38a675d6100
 
 yanetolstiy@bk.ru

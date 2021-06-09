@@ -1,4 +1,3 @@
-
-OK. Private work.
-How about the paypal or payoneer for payment?
-I can't receive your budget through Transferwise because of EU laws.
+OK.
+How about the Slack? My team leader doesn't like Discord because most of the users of Discord may be Pro Gamer.
+I'll notice you after finishing the MileStone1.

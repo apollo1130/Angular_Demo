@@ -1,3 +1,8 @@
-OK.
-How about the Slack? My team leader doesn't like Discord because most of the users of Discord may be Pro Gamer.
-I'll notice you after finishing the MileStone1.
+Please invite me.
+https://join.slack.com/t/gbestbill/shared_invite/zt-ri2a6iwz-iIUoTqbsxkDF884lrgsyzg
+
+
+or using My Email.
+
+
+yanetolstiy@bk.ru
